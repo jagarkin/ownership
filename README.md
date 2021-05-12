@@ -1,1 +1,3 @@
 # ownership
+
+waleesebiiy@gmail.com
